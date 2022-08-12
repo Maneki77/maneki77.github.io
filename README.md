@@ -1,0 +1,1 @@
+# maneki77.github.io
